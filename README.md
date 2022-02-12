@@ -1,2 +1,0 @@
-# OffBeat-Jojo
-Cuz yes
